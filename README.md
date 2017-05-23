@@ -1,10 +1,10 @@
 CASEY MILNE
-Executive officer of 
+Executive at 
 DiscoverOTB
 
 4154965997
 
-4156963558
+
 discoverotb@gmail.com 
 DiscoverOTB@onlinteambuilders.com
 www.DiscoverOTB.com password prosper
